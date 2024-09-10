@@ -1,1 +1,1 @@
-# meu-primeiro-repositorio
+vitinho é faixa preta 
